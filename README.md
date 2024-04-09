@@ -1,0 +1,1 @@
+ilk başlama
